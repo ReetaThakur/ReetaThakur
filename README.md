@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on Software Companies
 - 📫 How to reach me on thakurreeta1995@gmail.com
 - Portfolio - https://reetapotfolio.dorik.io/
+- LinkedIn - https://www.linkedin.com/in/reetathakur/
 
 <!---
 ReetaThakur/ReetaThakur is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

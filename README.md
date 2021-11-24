@@ -14,8 +14,8 @@
 - 📫 How to reach me **thakurreeta1995@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/177-Cg7gRsX_AUJHCrLxZeFKsJuKDpUW6/view?usp=sharing](https://drive.google.com/file/d/177-Cg7gRsX_AUJHCrLxZeFKsJuKDpUW6/view?usp=sharing)
-- - LinkedIn **https://www.linkedin.com/in/reetathakur/**
-- YouTube  **https://www.youtube.com/channel/UC1OF9zAFesC3jJ9YpP8B5xw**
+-  LinkedIn   **https://www.linkedin.com/in/reetathakur/**
+- YouTube     **https://www.youtube.com/channel/UC1OF9zAFesC3jJ9YpP8B5xw**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
